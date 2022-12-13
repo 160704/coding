@@ -1,2 +1,4 @@
 # coding
-Belajar
+Belajarterus belajar 
+jangan berhenti 
+hayu
